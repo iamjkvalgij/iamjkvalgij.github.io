@@ -1,1 +1,3 @@
-# iamjkvalgij.github.io
+# CHIBI'S (@ogchibi95) PERSONAL, PORTFOLIO PROJECT
+
+---
